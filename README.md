@@ -1,0 +1,2 @@
+# MindForge2026
+PRIVACY POLICY
