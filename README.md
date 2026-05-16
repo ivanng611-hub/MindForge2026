@@ -1,6 +1,5 @@
 # MindForge
 PRIVACY POLICY
-PRIVACY POLICY
 ==============
 
 Last updated: May 15, 2026
